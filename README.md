@@ -4,11 +4,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 Atualmente estou trabalhando em job
-- 🌱 Atualmente estou em modo de treinamento físico
-- 👯 Procuro colaborar comigo mesmo
-- 🤔 Estou procurando ajuda com o caps
-- 💬 Pergunte-me sobre meus trabalho
-- 📫 Como entrar em contato comigo: (41)940028922
-- 😄 Pronomes: VH/DELAS
-- ⚡ Curiosidade: SOU GOSTOSO
+- 🔭 Atualmente estou estudando 
+- 🌱 Atualmente estou em busca de evolução fisica 
+- 👯 Procuro colaborar com todos 
+- 🤔 Estou procurando ajuda com os estudos 
+- 💬 Pergunte-me sobre meu hobbye 
+- 😄 Pronomes: ele/dele
+- instagram: @vh.oliver_
+
+![](https://media1.tenor.com/m/aBk1AtQ_jq4AAAAC/patrick-zen.gif)
